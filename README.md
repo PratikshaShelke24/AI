@@ -1,2 +1,1 @@
-# AI
-study
+study, Leran something about meeeeeeeeeeeee...................
